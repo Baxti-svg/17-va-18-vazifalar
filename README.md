@@ -1,0 +1,1 @@
+# 17-va-18-vazifalar
